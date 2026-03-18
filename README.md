@@ -1,1 +1,1 @@
-# Yajna-s-Birthday
+# Yajna-Birthday
